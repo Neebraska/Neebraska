@@ -5,7 +5,7 @@
 - 🌱 I’m currently learning C
 - 🤔 I’m looking for help with Minecraft
 - 💬 Ask me about any tech related topic.
-- 📫 How to reach me: Neebraska#2702 - [@nastouils](https://twitter.com/nastouils)
+- 📫 How to reach me: Neebraska#2702
 - 😄 Pronouns: He/His
 - ⚡ Fun fact: I'm always right
 
